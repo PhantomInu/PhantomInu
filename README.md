@@ -1,4 +1,4 @@
-### 👻🐶 Phantom Inu  $INU 🐶👻 ## On Fantom Blockchain
+### 👻🐶 Phantom Inu  $INU 🐶👻 On Fantom Blockchain
             
 
 We bring to you the cutest dead pup on Fantom 🤗
